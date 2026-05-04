@@ -1,1 +1,1 @@
-# leetcode-diary
+# tolong biar diapain gitu
