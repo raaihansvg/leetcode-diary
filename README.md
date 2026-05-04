@@ -1,1 +1,1 @@
-# tolong biar diapain gitu
+# tolong diapakan gitu biar ga apa kali
